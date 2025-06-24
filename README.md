@@ -13,7 +13,7 @@
 
 点击访问：<a href="https://cg17-5.pages.dev/">Twitter中文版</a>
 
-点击访问：<a href="https://hj-1074.pages.dev/>海角官方网页版入口</a>
+点击访问：<a href="https://hj-1074.pages.dev/">海角官方网页版入口</a>
 
 点击访问：<a href="https://cg57-69.pages.dev/">暗网禁区</a>
 
